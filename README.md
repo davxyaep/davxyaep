@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning pharmacy, hacking (for good uses) and professional video editinh
 - 💞️ I’m looking to collaborate on nothing rn
 - 📫 How to reach me discord; davxyaep
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: I dont like sports lol
 
 <!---
